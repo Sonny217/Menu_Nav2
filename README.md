@@ -1,4 +1,4 @@
-<img width="2016" height="1000" alt="Captura de pantalla 2025-12-23 a la(s) 12 07 14 a  m" src="https://github.com/user-attachments/assets/89691fee-d998-4b2b-b1b4-0735ff6acc74" />
+<img width="2016" height="1000" alt="Captura de pantalla 2025-12-23 a la(s) 12 12 26 a  m" src="https://github.com/user-attachments/assets/2b2ac210-66ee-4eaf-8501-f11ac84f996c" />
 
 <img width="2016" height="1000" alt="Captura de pantalla 2025-12-23 a la(s) 12 07 09 a  m" src="https://github.com/user-attachments/assets/74703a4e-1672-483b-aa3a-ac2f6f75bbbe" />
 
